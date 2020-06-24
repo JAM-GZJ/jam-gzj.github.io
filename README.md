@@ -1,2 +1,2 @@
 ＃jam-gzj.github.io
-！[](https://github.com/JAM-GZJ/images/blob/master/miku.jpg)
+！[](https://avatar.csdnimg.cn/3/2/5/3_weixin_41586605.jpg)
