@@ -1,1 +1,2 @@
-# jam-gzj.github.io
+＃jam-gzj.github.io
+！[](https://github.com/JAM-GZJ/images/miku.jpg)
